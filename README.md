@@ -13,3 +13,6 @@ And the difficulties with and for dBase iV
 R.I.P. Ashton Tate (love you, miss you) 
 
 [Ashton Tate (R)](https://de.wikipedia.org/wiki/Ashton-Tate)
+
+## Sad things, fun things
+
